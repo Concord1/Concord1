@@ -1,4 +1,4 @@
-### ![image](https://github.com/Concord1/Concord1/assets/78932555/04969673-3a7d-4d67-8256-ebfe6e72ef2a)
+### ![image](https://github.com/Concord1/Concord1/assets/78932555/996aa97d-3093-42e8-aa8f-98d201a057fa)
 
 <!--
 **Concord1/Concord1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
